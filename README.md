@@ -5,7 +5,7 @@
 
 - 📫  Como me achar: **angelovcastro99@icloud.com**
 
-- 👀  Saiba mais: **Cupons e fazer amizades é por aqui mesmo 😅**
+- 👀 **Cupons e fazer amizades é por aqui mesmo 😅**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
